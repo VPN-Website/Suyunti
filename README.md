@@ -17,7 +17,7 @@
 
 * 所有套餐均支持Netflix、Disney、HBO、TVB、Youtube等国外流媒体解锁；
 
-* 支持全平台Windows、Mac、Linux、Android、iOS等各种操作系统的SSR/V2Ray协议订阅；（Clash/Shadowrocket//Kitsunebi/QuantumultX等）
+* 支持全平台Windows、Mac、Linux、Android、iOS等各种操作系统的SSR/V2Ray协议订阅；（Clash/Shadowrocket/Kitsunebi/QuantumultX等）
 
 * 站内提供订阅转换，方便不同协议配置，避免订阅信息泄露；
 
