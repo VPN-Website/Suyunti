@@ -4,7 +4,7 @@
 ## 速云梯官网
 **速云梯官网最新地址**：[https://suyunti.com](https://affg.cc/suyu)
 
-[![速云梯.jpg](https://s2.loli.net/2023/11/28/tZVUaivdECBQhwy.jpg)](https://go.51tz.cc/sycloud)
+[![速云梯.jpg](https://s2.loli.net/2023/11/28/tZVUaivdECBQhwy.jpg)](https://affg.cc/suyu)
 
 ## 速云梯机场特点
 * 线路高速稳定，抗封锁能力出众，流量充沛且带宽充足；
@@ -28,11 +28,11 @@
 * 支持提交工单，响应快速，站内教程与软件完善；
 
 ## 速云梯套餐订阅
-[![速云梯价格.jpg](https://s2.loli.net/2023/12/15/TrA9aEJHXU3Qmcd.jpg)](https://go.51tz.cc/sycloud)  
+[![速云梯价格.jpg](https://s2.loli.net/2023/12/15/TrA9aEJHXU3Qmcd.jpg)](https://affg.cc/suyu)  
 速云梯机场套餐定价灵活，从月付18元到99元均可支持流媒体解锁，能够满足绝大部分的应用落地与不同的用户需求，极高性价比机场梯子。
 
 ## 速云梯机场测速(晚高峰)
-[![速云梯测速.jpg](https://s2.loli.net/2023/12/15/EbyF3ahDo9xZAWM.jpg)](https://go.51tz.cc/sycloud)
+[![速云梯测速.jpg](https://s2.loli.net/2023/12/15/EbyF3ahDo9xZAWM.jpg)](https://affg.cc/suyu)
 
 ## 速云梯跑路了吗-机场官网打不开-速云梯官网备用地址
 速云梯机场隶属速鹰旗下，由境外专业大型运维实体运营，跑路风险非常小。
@@ -45,5 +45,5 @@
 作为速鹰机场旗下主力分站，速云加速器综合实力表现卓越，在我们跟踪测试中，节点的连接速度非常稳定，晚高峰4K视频播放流畅。期间因为订阅链接转换事宜发送服务工单两次，均在五分钟内响应，售后的服务蛮给力。如果你平时观看视频比较多，个人建议最好选择订阅标准版以上套餐，速率更快流量也更充沛。上车请点击[Suyunti速云梯官网注册](https://affg.cc/suyu),记得先领优惠折扣码。⬇
 
 ## 速云梯机场折扣优惠
-包年特惠 7折优惠代码：**YYY11** 
+包年特惠7折优惠代码：**YYY11** 
 
